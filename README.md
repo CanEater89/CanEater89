@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @CanEater89
+- 👀 I’m interested in coding or school
+- 🌱 I’m currently learning how to understand code
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me idc
+- 😄 Pronouns: he/him
