@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CanEater89
 - 👀 I’m interested in coding or school
 - 🌱 I’m currently learning how to understand code
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate on crossbow2021
 - 📫 How to reach me caneater@gmail.com
 - 😄 Pronouns: he/him
