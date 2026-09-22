@@ -2,5 +2,5 @@
 - 👀 I’m interested in coding or school
 - 🌱 I’m currently learning how to understand code
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me idc
+- 📫 How to reach me caneater@gmail.com
 - 😄 Pronouns: he/him
